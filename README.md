@@ -1,4 +1,4 @@
-## 👋 Hi, I'm Dorian 
+## 👋 Hi, I'm Dorian alias Rin 
 I'm a 21 years old
 
 ## 🔗 You can find me on..
